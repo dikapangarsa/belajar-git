@@ -12,3 +12,5 @@ Hobi: Bermain Gitar
 
 Target selama magang:
 Saya ingin menambah wawasan saya terkait pelajaran di bidang RPL.
+
+Email:dikapangarse@gmail.com
